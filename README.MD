@@ -1,1 +1,1 @@
-# landpage the instagram
+# landing page the instagram
